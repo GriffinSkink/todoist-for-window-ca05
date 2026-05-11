@@ -1,4 +1,4 @@
-# 
+# Todoist for Windows ultimate Extension: offline-access & checklists is the best Todoist for Windows extension, featuring offline-access and checklists. Powerful, efficient, and
 
 
 
